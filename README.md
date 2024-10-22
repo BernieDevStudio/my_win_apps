@@ -1,2 +1,5 @@
-# my_win_apps
-A libary of multi installers for windows
+<p align="center">–✦– ᛗꓴԼ𝖳𐤦 𐤦ᜤ𐊖𝖳ⱭԼԼΕɌ Լ𐤦ΒⱭɌϔ –✦–
+  
+---------------------
+<p align="center">
+<p align="center">For lazy people like me
